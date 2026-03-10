@@ -13,6 +13,11 @@ Est:
 
 # Sofia 
 
+## Truc de moi
+- bar kool [KEBA](https://maps.app.goo.gl/JdUsyvfrnkMX9Wmm9)
+- bar bougie je donne pas l'adresse c'est mort
+- ajouter adresse syrien miam miam
+
 ## Reco de la Kenz <333
 - Fabrika avtonomia Lieu autonome/anar avec concerts (plutot musique hardcore, expe, metal ) [facebook](https://www.facebook.com/fabrika.avtonomia/)
   adresse : bul. ÔÇ×General Eduard I. TotlebenÔÇ£ 34 1606 Sofia, Bulgaria (on the back side, next to Kaufland)
