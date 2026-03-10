@@ -33,11 +33,13 @@ Est:
 
 # Plovdiv
 
+## Centre
+- [Nebet Tepe Hill](https://maps.app.goo.gl/w2dFy1rKbEPDWRpa7): pour les petits coucher de soleil (penser a prendre biere !!)
+- [Kapana](https://maps.app.goo.gl/bek8DUQUQsRywngU7) : quartier des artiste oukoi la tim
+
 ## to review
 - Old town
 - Roman theatre
-- Kapana creative district
-- street art
 
 ## Autour
 - [Monastere de Batchkovo](https://maps.app.goo.gl/VvtQA5yDKNt1Gvg58)
