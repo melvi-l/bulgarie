@@ -14,19 +14,19 @@ Est:
 # Sofia 
 
 ## Reco de la Kenz <333
-- Fabrika avtonomia Lieu autonome/anar avec concerts (plut├┤t musique hardcore, exp├®, m├®tal ) [facebook](https://www.facebook.com/fabrika.avtonomia/)
+- Fabrika avtonomia Lieu autonome/anar avec concerts (plutot musique hardcore, expe, metal ) [facebook](https://www.facebook.com/fabrika.avtonomia/)
   adresse : bul. ÔÇ×General Eduard I. TotlebenÔÇ£ 34 1606 Sofia, Bulgaria (on the back side, next to Kaufland)
 
-- dream house : le restaurant v├®g├®tarien pas cher, avec buffet le dimanche (peut etre ferme)
-  adresse: Sofia Center, Ðâð╗. ÔÇ×ðÉð╗ð░ð▒ð©ð¢ ðÿ. ðÆð╗.ÔÇ£ 50, 1000 Sofia, Bulgarie
+- dream house : restaurant végétarien pas cher, avec buffet le dimanche (peut-être fermé).
+  adresse : Sofia Center, ul. “Bratya Miladinovi” 50, 1000 Sofia, Bulgarie.
 
-- Gifted urban art(https://maps.app.goo.gl/fweWppJ2dLwspfar6?g_st=i) : lieu ax├® art type graff etc, avec des bouquins styl├®s
+- [Gifted urban art](https://maps.app.goo.gl/fweWppJ2dLwspfar6?g_st=i) : lieu axe art type graff etc, avec des bouquins styles
   adresse: Sofia Center, ul. "Ivan Denkoglu" 24, 1000 Sofia, Bulgarie
 
-- silvita : j'aimais bien prendre des petites p├ótisseries l├á c'├®tait juste ├á c├┤t├® de l├á o├╣ on habitait
+- silvita : j'aimais bien prendre des petites patisseries la c'etait juste a cote de la ou on habitait
   adresse: Sofia Center, ul. "Han Asparuh" 16, 1463 Sofia, Bulgarie
 
-- palomino : restaurant juste ├á c├┤t├® de l├á o├╣ on ├®tait aussi, j'y suis all├®e une fois avec ├ëli.e et c'├®tait genre tellement d├®licieux et pas cher, tr├¿s bouffe typique Bulgarie
+- palomino : restaurant juste a cote de chez nous aussi, j'y suis allee une fois avec eli.e et c'etait genre tellement delicieux et pas cher, tres bouffe typique Bulgarie
   adresse: Sofia Center, ul. "Tsar Asen" 45, 1000 Sofia, Bulgarie
 
 - [liste de la kenz avec tous ses lieux bizarre](https://maps.app.goo.gl/tWTKniyjCavMiLVY8?g_st=i)
