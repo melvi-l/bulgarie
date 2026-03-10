@@ -31,6 +31,13 @@ Est:
 
 - [liste de la kenz avec tous ses lieux bizarre](https://maps.app.goo.gl/tWTKniyjCavMiLVY8?g_st=i)
 
+# Monastere de Rila chaipaquoi 
+
+## Autour
+- [huumm kayou tranchant stylee](https://maps.app.goo.gl/vJ5cbVytoN9biWzx9)
+- [hummm les dechets pour ella <3](https://maps.app.goo.gl/U7gSQSPaMgQb8ACQ8)
+- [huummm le poissong il a faimg mais moi aussi du coup je mange le poissong a la montagne de rila](https://maps.app.goo.gl/nSp3NSVDzS3ibSAM8)
+
 # Plovdiv
 
 ## Centre
