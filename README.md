@@ -17,6 +17,12 @@ Est:
 - bar kool [KEBA](https://maps.app.goo.gl/JdUsyvfrnkMX9Wmm9)
 - bar bougie je donne pas l'adresse c'est mort
 - ajouter adresse syrien miam miam
+- supa star
+- [bar blues](https://maps.app.goo.gl/XrHLvBqFviUQs2Sa7)
+- [bar punk cache](https://maps.app.goo.gl/TmgRKS38KMPzNudu8) selon la kenz
+- [mekista](https://maps.app.goo.gl/2Hg9vPCusTpwGE5A8):  pour citer la kenz "Beignets bulgares c'est très bon et gras"
+- [supa star](https://maps.app.goo.gl/xS9koppEbq7q1GMu8)
+
 
 ## Reco de la Kenz <333
 - Fabrika avtonomia Lieu autonome/anar avec concerts (plutot musique hardcore, expe, metal ) [facebook](https://www.facebook.com/fabrika.avtonomia/)
